@@ -1,2 +1,0 @@
-# BurnsBrightPsychiatry
-Nora Burns DO
